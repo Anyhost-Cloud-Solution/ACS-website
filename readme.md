@@ -9,7 +9,6 @@ For any help or support needed in regards of the website, please contact the sup
 | --- | ----------- |
 | vikingww2 | Owner & Founder |
 | Leoopro | Head of staff |
-| Faisal | Website developer |
 
 # 📋 Hiring staff
 
