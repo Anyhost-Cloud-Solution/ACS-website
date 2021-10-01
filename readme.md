@@ -9,6 +9,8 @@ For any help or support needed in regards of the website, please contact the sup
 | --- | ----------- |
 | vikingww2 | Owner & Founder |
 | Leoopro | Head of staff |
+| Kaito | Administrator |
+| NoOdLeS | Administrator |
 
 # 📋 Hiring staff
 
